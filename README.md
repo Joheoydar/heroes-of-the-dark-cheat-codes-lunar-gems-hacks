@@ -1,2 +1,5 @@
-# heroes-of-the-dark-cheat-codes-lunar-gems-hacks
-Heroes of the Dark cheat codes unlimited Lunar Gems hacks iOS android tutorial
+# Heroes of the Dark cheat codes unlimited Lunar Gems hacks iOS android tutorial
+
+Heroes of the Dark cheat codes unlimited Lunar Gems hacks iOS android tutorial - After rescuing QARI, you found the old castle in Birsa. These rooms have been in disrepair since birsha was imprisoned for the past 40 years. Bilsha reluctantly agreed to ask his sister Dava for help. She agreed to help bilsha's career on the premise that the castle returned to normal operation. The game will give you some tasks to complete, which will reward you with some resources. More importantly, daeva's fragments, so that you can take her to perform tasks. Now, the throne room of the castle is still intact. Upgrading Heroes of the Dark cheats will upgrade the whole castle. The throne room has prerequisites for upgrading, and the game will guide you to upgrade. The first room you will restore will produce "crystals". Each tenebrius race has three types of crystals for upgrading Heroes:
+
+<a href="https://windmod.icu/heroes-of-the-dark/">go here</a>
